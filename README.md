@@ -1,0 +1,2 @@
+# khariddari.co
+Reselling 
